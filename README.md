@@ -1,20 +1,4 @@
-<br/>
-
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
-
-
-<br/>
-
-<p align="center">
-  <img width="660" height="800" src="https://cdn.discordapp.com/attachments/1282985399051878441/1409103162333200424/Untitled110_20250824165026.png?ex=68ac2915&is=68aad795&hm=5b905e80197fb023063400dd0b0b73ef03f870492aeff911ba9946f6b1a6f717&/460/300">
-
-<br/>
-
-<br/>
-
-
-<br/>
+# 1  2  3,  I  WANT  YURI
 
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
