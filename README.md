@@ -1,7 +1,11 @@
-# dont cqall elise at 3 AM youwilkl get scarffiiced and be called a WITCh watch pout do NOT call elise at 3 AM
+<p align="center">
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1412004386619523123/Little_Goody_Two_Shoes.jpeg?ex=68b6b70f&is=68b5658f&hm=fb9297cbe84e012435f4e26c02365e5485e14ba2d8963062a009fc372e2d4f7e" />
+</p>
 
-ㅤㅤㅤ
-ㅤ ㅤ ㅤㅤ ㅤ 
+
+
+
+
 
 
 <!--
