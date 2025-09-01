@@ -1,4 +1,4 @@
-# dont cqall elise at 3 AM youwilkl get scarffiiced and be called a WITCh watch pout do nOt call elise at 3 AM
+# dont cqall elise at 3 AM youwilkl get scarffiiced and be called a WITCh watch pout do NOT call elise at 3 AM
 
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
