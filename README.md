@@ -2,7 +2,7 @@
   <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1431217292653494394/Untitled141_20251024174515.png?ex=68fc9c79&is=68fb4af9&hm=9207d0182d94fded13582a2c0d2f2d136976763d2a0ac9bb6fdf753326e09d2d&" />
 </p>
 
-
+$${\color{dark pink}" i ~know ~my ~love ~was ~different ~from ~yours ~but ~it ~was ~love ~too."}$$
 
 
 
